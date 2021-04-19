@@ -1,7 +1,7 @@
 - Hi, I’m @User7558 
 - 🎈 I like ice cream, dogs, cats, music, books and a lot of other things
-- 🌱 In the moment I'm learning basic programming and anatomy to draw
-- 👓 I'm brazilian, speak english (bad) and wanna lear spanish
+- 🌱 In the moment I'm learning anatomy to draw
+- 👓 I'm brazilian, speak english (bad) and wanna learn spanish
 - 📫 How to reach me:
 - E-mail: 0user.7558@gmail.com
 - Instagram: User7558_
